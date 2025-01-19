@@ -30,4 +30,12 @@ Uygulama Tasarıımı ve Tanıtım Videosu:
 ![WhatsApp Image 2025-01-19 at 19 15 20 (2)](https://github.com/user-attachments/assets/d740cac7-3e09-4c6e-a472-a0753f62da0f)
 ![WhatsApp Image 2025-01-19 at 19 15 20 (3)](https://github.com/user-attachments/assets/4cbdc5fc-0260-4edc-9c64-8bea10159471)
 
-https://youtu.be/K0EKMyIdkio
+Youtube: https://youtu.be/K0EKMyIdkio
+
+Proje Ekibi:
+
+Zeynep Su Argın
+
+Nursena Alter
+
+Simge Esen
